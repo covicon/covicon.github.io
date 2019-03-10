@@ -1,1 +1,0 @@
-# covicon.github.io
